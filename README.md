@@ -1,1 +1,1 @@
-# Lenovo-y700-14.15isk-Hackintosh
+# Lenovo-y700-14isk-15isk-Hackintosh
