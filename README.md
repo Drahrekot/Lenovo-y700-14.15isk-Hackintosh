@@ -1,0 +1,1 @@
+# Lenovo-y700-14.15isk-Hackintosh
